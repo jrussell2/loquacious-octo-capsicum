@@ -1,0 +1,1 @@
+My favorite restaurant is La Hacienda Ranch in Plano, TX. They have excellent beef fajitas.
